@@ -1,0 +1,1 @@
+# ParvizGuliyev_2505045007_BasicProgramming
